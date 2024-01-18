@@ -113,3 +113,16 @@ Instructions:
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
+
+### Chocolate Covered Strawberries
+
+Ingredients:
+- 10 oz milk chocolate
+- 2 lbs fresh strawberries
+
+Instructions
+1. Melt the chocolate using a double boiler.
+2. Wash strawberries thoroughly and paat dry.
+3. Hold the strawberry by the stem and dip into the melted chocolate.
+4. Allow for strawberries to set and then they are ready to eat!
+
